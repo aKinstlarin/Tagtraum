@@ -1,4 +1,4 @@
-![Tagtraum](IMG_20250702_140345.jpg)
+![Tagtraum](IMG_20261015_165245.jpg)
 # Tagtraum
 
 **Titel:** Tagtraum  
